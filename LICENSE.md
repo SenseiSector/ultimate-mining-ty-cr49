@@ -1,4 +1,4 @@
-
+ultimate mining tycoon Scripts updated offers the most advanced ultimate mining tycoon Script, with unlimited stamina and auto-farm. Perfect for
 
 
 
